@@ -24,8 +24,11 @@ About Kratom Experts
 [Kratom Experts](https://kratomexperts.org/) is an independent digital publisher covering breaking news, legislation, product safety updates, and consumer education related to kratom, 7-OH products, botanical wellness products, and emerging alternative compounds in the United States.
 
 For media inquiries, interviews, or additional comments regarding Tennessee’s kratom legislation, visit: [Read Full Coverage](https://kratomexperts.org/july-1st-2026-tennessee-kratom-ban/)
+
 Media Contact:
+
 Alphan Maina
+
 Kratom Experts
 
 https://kratomexperts.org/
