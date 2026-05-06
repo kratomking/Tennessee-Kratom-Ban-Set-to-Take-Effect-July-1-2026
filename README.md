@@ -26,11 +26,7 @@ About Kratom Experts
 For media inquiries, interviews, or additional comments regarding Tennessee’s kratom legislation, visit: [Read Full Coverage](https://kratomexperts.org/july-1st-2026-tennessee-kratom-ban/)
 
 Media Contact:
-
 Alphan Maina
-
 Kratom Experts
-
 https://kratomexperts.org/
-
 alphan@alphaseoplus.com
